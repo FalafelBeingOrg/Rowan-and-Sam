@@ -1,0 +1,1 @@
+Strongly believes the [[Other Side]] must exist, but does not experience it.

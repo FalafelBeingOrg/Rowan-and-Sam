@@ -1,0 +1,1 @@
+Short poems from different characters perspectives, that take on the limitations and feeling of the characters personality. POEM NUMBERS ARE OUT OF ORDER, SIMPLY ORDER OF WRITING, WILL BE ORGANIZED LATER.

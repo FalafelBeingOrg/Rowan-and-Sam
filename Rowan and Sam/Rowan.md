@@ -1,0 +1,1 @@
+Has knowledge of the [[Other Side]], but doesn't believe in it.
